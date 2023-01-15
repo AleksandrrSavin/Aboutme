@@ -12,4 +12,4 @@
 
 **Фото**
 
-![] (https://sun9-38.userapi.com/impf/c840236/v840236131/591f2/CyF0HthAHAk.jpg?size=1536x864&quality=96&sign=25c2d7c686aaa4ad65240b8295a5009c&type=album)
+![](https://sun9-38.userapi.com/impf/c840236/v840236131/591f2/CyF0HthAHAk.jpg?size=1536x864&quality=96&sign=25c2d7c686aaa4ad65240b8295a5009c&type=album)
